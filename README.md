@@ -1,2 +1,2 @@
 # Test_2
-Is my first time testing what i now 
+Is my first time testing what i know so far!
